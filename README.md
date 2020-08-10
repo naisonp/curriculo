@@ -52,7 +52,7 @@ Concluído em 2016
 ## Redes Sociais
 *  [Linkedin](https://www.linkedin.com/in/naison-pontes-886969b3/)
 
-<br><br>
+<br>
 
 ## Me ajude!
-Encontrou algum erro nas informações? Sentiu falta de algo? Abre uma issue! <br> :wink:
+Encontrou algum erro nas informações? Sentiu falta de algo? Abre uma issue! :wink:
